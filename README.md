@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @veagul
+- 👋 Hi, I’m Veagul
 - 📫 How to reach me veagul@stamps.co.id
 
 
